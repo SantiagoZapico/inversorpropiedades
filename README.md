@@ -1,9 +1,5 @@
 https://es.wix.com/website/templates/html/business/real-estate
 
-https://www.inversorpropiedades.com.ar/index.html
-
-https://drive.google.com/drive/folders/1NO8ivWERY1B8eR0pN8gKQZLF16eDJO9w
-
 https://fonts.google.com/icons
 
 *25/07/2024*
